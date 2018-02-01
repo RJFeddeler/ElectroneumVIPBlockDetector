@@ -1,0 +1,2 @@
+# ElectroneumVIPBlockDetector
+Electroneum donations: etnkLkTwFXvUbs66NHiGiYd1eFk5PaeQdiFSbVrc1uH5bhrjzbRGnALNrZkAD8eikKaU766uEp98a6VxWdbFarvf94mWeV2Xp5
